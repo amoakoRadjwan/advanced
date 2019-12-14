@@ -1,2 +1,2 @@
 #readme
-the new stuff is advanced
+the new stuff is advanced.What of what i type here
